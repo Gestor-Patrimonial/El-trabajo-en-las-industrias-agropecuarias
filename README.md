@@ -1,1 +1,2 @@
 # El-trabajo-en-las-industrias-agropecuarias
+Considerando desde otro punto de vista lo referente al trabajo en las industrias agropecuarias, el de las industrias manufactureras lo consideraremos más adelante, se puede seguir el número de trabajadores imputados a ella a través de las cifras de los censos de 1908 y 1914, y aunque posterior en algunos años al límite que nos hemos impuesto, en el censo agropecuario de 1937.
